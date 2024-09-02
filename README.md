@@ -5,5 +5,6 @@
 - In the future,I would like to see myself as a successful software engineer persuing my career in this field.
 
 
-  ![image](https://github.com/user-attachments/assets/45155956-ceff-40ba-892c-d468f55ede53)
+![image](https://github.com/user-attachments/assets/21c582f9-9213-4c7b-a133-e891800f82f5)
+
   
